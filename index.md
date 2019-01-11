@@ -1,3 +1,1 @@
-# Hey David, if you wanna play like Ramon...
-
-## Win Games
+# Win Games
